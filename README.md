@@ -7,4 +7,7 @@ El Hotel Continental en sus inicios fue llamado “Hotel de France”. Se encarg
 ###### Jueves 10 de octubre, 2024
 
 - - - - - -
+
 ![toledo](https://github.com/user-attachments/assets/118bc5dd-ad1c-4cbe-8e8c-3fa9ec2579d5)
+
+- - - - - - 
